@@ -1,1 +1,0 @@
-# soft-life.github.io
